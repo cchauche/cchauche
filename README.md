@@ -9,8 +9,6 @@
 
 👨‍💻 Software Engineer | 🤿 SCUBA Diver | 🎭 Entertainment Lighting Programmer
 
-🏢 Looking for work! | 🌆 Based in NY, NY
-
 
 ---
 ### Languages & Tools
